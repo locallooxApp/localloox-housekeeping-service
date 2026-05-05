@@ -51,7 +51,3 @@ Talaja Road, Bhavnagar - 364001
 📞 9099546868  
 
 ---
-
-## 📌 License
-
-This content is created for promotional and informational purposes by LocalLoox.
